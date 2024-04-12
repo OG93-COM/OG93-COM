@@ -12,4 +12,4 @@ LinkedIn: https://www.linkedin.com/in/oussamagalai/ 🤝
 
 Website: https://www.og93.com/ 🔗
 
-![logo-White](https://github.com/OG93-COM/OG93-COM/assets/132763749/325cd9e0-842c-4275-9156-8c15a32c9bfd)
+![logo-White-Opacity](https://github.com/OG93-COM/OG93-COM/assets/132763749/31984bf4-e487-4d5d-a8d2-ee5daab5a018)
