@@ -11,4 +11,4 @@ LinkedIn: https://www.linkedin.com/in/oussamagalai/ 🤝
 
 Website: https://www.og93.com/ 🔗
 
-![myBadge](https://github.com/user-attachments/assets/2afa96c7-61b6-4500-8d66-1a39ed5cbbcd)
+![myBadges](https://github.com/user-attachments/assets/cc905730-ab61-43fe-959b-3fc959bdad58)
