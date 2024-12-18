@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Oussama Galai 🥷
   
-![BannerOG-DEV Ninja4](https://github.com/OG93-COM/OG93-COM/assets/132763749/ba85a7be-8cfb-4ab7-9fc1-c163e814e18d)
+![BannerOG-DEV Ninja3 copy](https://github.com/user-attachments/assets/23b46850-21f1-4fd2-ba40-00de75160f73)
 
 
 🚀 UX/UI Designer || Front-End Developer 👨🏻‍💻 || SEO 🌐
